@@ -1,1 +1,1 @@
-Enhancer landsape of AD project with Alexi Nott's group, Imperial College London.
+Enhancer landsape of AD project with Nott group, Imperial College London.
